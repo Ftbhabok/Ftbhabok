@@ -1,4 +1,5 @@
  .+"+.+"+.+"+.+"+.+"+.+"+.+"+.+"+.+"+.+"+.+"+.+"+.+"+.+"+.+"+.+"+.+"+. 
 I be like that sometimes
  "+.+"+.+"+.+"+.+"+.+"+.+"+.+"+.+"+.+"+.+"+.+"+.+"+.+"+.+"+.+"+.+"+.+" 
-![448865683_1256300922443441_4728901366616478569_n](https://github.com/user-attachments/assets/2223611f-2630-4f41-8685-88fe9bbc2517)
+
+![LockInGottaLockInGIF](https://github.com/user-attachments/assets/7088926d-9fca-4756-95ec-3bc575f9e020)
